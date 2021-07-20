@@ -19,3 +19,14 @@ We are specialized in following areas:
 
   KloudSys offers a progressive range of SOA Consulting Services that provide the perfect fit for our customer needs.
 
+### We Work With
+We understand, every client has unique needs and there are different ways to fulfill them. We offer several customized engagement models for this very reason. Each of the models is designed to offer maximum benefits to clients. KloudSys offers customers to fulfill their requirements effectively and eventually add value to core business areas.
+
+### Having Something To Discuss?
+
+- **Email Us At**:
+  info@kloudsys.com
+- **Call Us At**:
+  +61404734607
+- **Visit Us At**:
+  5/20A Emerald Street, Kedron, Queensland 4031, Australia
